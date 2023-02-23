@@ -2,8 +2,6 @@
 
 jai jawan jai kissan
 jai shree ram
+jai anjaneya
 
-
-kannadiga
-
-ok
+saNatan dharma
